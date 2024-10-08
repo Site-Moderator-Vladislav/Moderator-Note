@@ -3,7 +3,7 @@ wwk
 kwww
 kww
 kwww
-eaaww
+eaawww
 a
 a
 aww
