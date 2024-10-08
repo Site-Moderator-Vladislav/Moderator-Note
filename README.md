@@ -4,8 +4,7 @@ kwww
 kww
 kwww
 eaawww
-a
-a
+aw
 aww
 ewww
 w
