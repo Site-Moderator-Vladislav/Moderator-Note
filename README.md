@@ -1,6 +1,6 @@
 wwk
 
-k
+kw
 kw
 kwww
 eaaww
