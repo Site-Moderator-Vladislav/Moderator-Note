@@ -1,7 +1,7 @@
 wwk
 
 kwww
-kww
+kwww
 kwww
 eaawww
 aw
